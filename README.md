@@ -28,7 +28,7 @@ Connect with like-minded individuals and get the most out of AIHawk.
 
 🤝 **Network:** Connect with other professionals and explore new opportunities.
 
-🔔 **Stay updated:** Get the latest news and updates on AIHawk.
+🔔 **Stay updated:** Get tdhe latest news and updates on AIHawk.
 
 <!-- Strong Call to Action -->
 ### Join Now 👇
